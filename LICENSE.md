@@ -1,4 +1,4 @@
-#  
+#  exclusive Script for dig deeper for brainrots is the best dig deeper for brainrots Script, featuring auto-sell and speed. Safe and powerful for all
 
 
 
